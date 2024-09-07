@@ -8,3 +8,5 @@
 - 😄 Pronouns: noob.ruiiz
 - ⚡ Fun fact: I love one piece
 - 👨‍💻 https://estebanjimenezruiz.com/
+
+-  **[LinkedIn](https://www.linkedin.com/in/estebanjimenezruiz/)**: Connect with me for professional networking.
